@@ -98,3 +98,7 @@
  * 開催場所のルールに従う
 * 洗い物をする
 * リセッシュ等があるとニオイ対策になるかもしれない
+
+![Image of making takoyaki](https://scontent.cdninstagram.com/hphotos-xfa1/t51.2885-15/e35/11887058_1673151196253245_2044956007_n.jpg)
+
+![Image of making takoyaki](https://scontent.cdninstagram.com/hphotos-xfa1/t51.2885-15/e35/11939381_1631539100448564_2127404936_n.jpg)
